@@ -2,8 +2,7 @@
 
 •─────✧─────•
 
-- Aluna do 2° ano d
-- o curso técnico em Desenvolvimento de Sistemas. 💻
+- Aluna do 2° ano do curso técnico em Desenvolvimento de Sistemas. 💻
 - Aprendendo HTML e CSS.
 - Há 2 anos na mundo da programação! ❤
 
