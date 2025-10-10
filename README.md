@@ -1,13 +1,9 @@
-## .｡.:*✧ Bem Vindos ao meu perfil! ✧*:.｡.
-
-•─────✧─────•
+## Bem Vindos ao meu perfil! ཐི⋆♱⋆ཋྀ
 
 - Aluna do 2° ano do curso técnico em Desenvolvimento de Sistemas. 💻
 - Aprendendo HTML e CSS.
-
-•─────✧─────•
-
-ヘ(.^o^)ノ＼(^_^.)
+  
+˚₊‧⁺𝄞𝄢
 
 </div>
   <a href="https://beacons.ai/anajuliacerisoli">
