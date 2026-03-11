@@ -1,4 +1,4 @@
-## Bem Vindos ao meu perfil! ཐི⋆♱⋆ཋྀ
+## Bem Vindos ao meu perfil!
 
 ˚₊‧⁺𝄞𝄢
 
